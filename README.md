@@ -36,8 +36,20 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
+1. ¶To all true louers of the
+pure Goſpell and holy doctrine of
+Ieſus Chriſt, and to all thoſe that
+deſire the preſeruation of the Realme
+of France, Peter Erondelle wiſheth
+health in the Lord.
+
+    _ A Prayer.
+
 #####Body#####
-A declaration and catholick exhortation to all Christian princes to succour the Church of God and re
+
+1. ¶A Declaration and exhortation
+to Princes, &c.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
